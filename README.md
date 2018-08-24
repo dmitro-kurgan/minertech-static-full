@@ -1,0 +1,1 @@
+# minertech-static-full
